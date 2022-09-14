@@ -6,3 +6,5 @@
 <h1> Thank you Father for another chance to make a difference. Lord hear my plea for your favor, IJN </h1>
 
 <h2> Father on this day 8/15/2022, I commit and surrender all my efforts into Your hand. Favor me O Lord. Shine Your face on me O Lord. In Jesus name. Amen </h2>
+
+<h1> Today is 9/14/22, almost 2weeks since my hardworking. caring, loving, and strong sister Chouchou left us to be with you Lord. Father, put me the gap to fill the parent for her children, IJN I pray, Amen. </h1>
